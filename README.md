@@ -1,0 +1,2 @@
+# FuckChessdotCom
+Stealthisinstead
